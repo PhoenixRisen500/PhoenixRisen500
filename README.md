@@ -1,3 +1,7 @@
+## Eric Braden
+### Software Developer + Culinary Artist
+
+
 ## Hi there 👋
 
 <!--
